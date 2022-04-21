@@ -1,4 +1,4 @@
-Wanna print a brain?
+Stand with Ukraine 🇺🇦
 
 [![telegram: @tairesh](https://tairesh.ml/img/telegram.svg)](https://t.me/tairesh)
 [![paypal: tairesh](https://tairesh.ml/img/paypal.svg)](https://paypal.me/tairesh)
