@@ -1,4 +1,3 @@
-Fuck you
+Dirty water kills 6000 children every day
 
 [![telegram: @tairesh](https://tairesh.github.io/img/telegram.svg)](https://t.me/tairesh)
-[![paypal: tairesh](https://tairesh.github.io/img/paypal.svg)](https://paypal.me/tairesh)
